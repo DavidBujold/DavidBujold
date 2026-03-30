@@ -32,4 +32,4 @@ I am someone who is very curious and always love to learn new things.
 
 ---
 
-📫 Reach me at: davidbujold7@gmail.com | Portfolio: *coming soon*
+📫 Reach me at: davidbujold7@gmail.com | Portfolio: davidbujold.dev
